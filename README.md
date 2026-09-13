@@ -1,4 +1,4 @@
-## MICAH BELL
+## MICAH BELL. C + H + K, IWC, INT
 
 I'm POC and gay and I support transgender people AND I support neo / zenopronouns!
 
@@ -9,5 +9,7 @@ Why Micah?: I'm autistic and had him as a favorite character due to the developm
 My favorite characters are: General Tullius, River Ward, Micah Bell, Tilly Jackson, Haytham Kenway, Wyll, and Romeo: The Admin.
 
 I like these games: Red Dead Redemption 2, Assassin's Creed 3, Skyrim, Morrowind, Cyberpunk 2077, Baldur's Gate 3, and MCSM.
+
+I'm not a fan of most major Micah ships, with the mild exception of VanDerBell. That being said, I don't really care, but please don't approach me with the intent of SERIOUSLY roleplaying, especially if it includes ships. I'm Ok with playful rp!
 
 Sign my ATA?
