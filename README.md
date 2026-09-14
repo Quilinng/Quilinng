@@ -13,3 +13,5 @@ I like these games: Red Dead Redemption 2, Assassin's Creed 3, Skyrim, Morrowind
 I'm not a fan of most major Micah ships, with the mild exception of VanDerBell. That being said, I don't really care, but please don't approach me with the intent of SERIOUSLY roleplaying, especially if it includes ships. I'm Ok with playful rp!
 
 Sign my ATA?
+
+Also, if you wonder why my responses can differ, it's because my personality fluxuates often.
